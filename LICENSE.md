@@ -1,4 +1,4 @@
-# 
+# Ultimato leverage trading bot fluxo de trabalho para Mac OS | Código aberto leverage trading bot fluxo de trabalho para PC Windows. Com segurança de chave privada e cultivo de rendimento — otimizado para máximo desempenho em cada plataforma.
 
 
 
